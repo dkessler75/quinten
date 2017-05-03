@@ -9,7 +9,7 @@ I was in fourth grade when my ankles started to sprain easily.  It all started w
 I was playing outside and the dog was teathered in the backyard.  As I was standing the dog ran around me and tripped me with the leash.  I fell on my right arm and broke my wrist.  I was in a ton of pain and I ran inside and told my mom.  She took a look and told me to get in the van.  We rushed off to the doctor's office.  They pulled on my hand until my wrist popped back into place.  It actually felt pretty good.  I had to wear a brace for the rest of the summer.  
 
 <img src="http://www.breg.com/wp-content/uploads/product_images/FusionMensOAPlus_100.png" 
-alt="knee brace" width="50" />
+alt="knee brace" width="175" />
 
 ### Sprained Knee
 
